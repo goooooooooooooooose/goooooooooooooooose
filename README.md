@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @goooooooooooooooose
+- 👀 I’m
+- 🌱               learning
+- 💞️             to
+- 📫              me
